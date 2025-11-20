@@ -1,4 +1,4 @@
-![I am Junior Front-End Developer](https://i.ibb.co.com/b569Bk0k/1.png)
+![I am Junior Front-End Developer](https://i.ibb.co.com/DxCcR1n/Black-and-White-Modern-Clean-Professional-Programmer-Linked-In-Background.png)
 ### Hi there 👋, I'm Himon
 #### I am Junior Front-End Developer
 
